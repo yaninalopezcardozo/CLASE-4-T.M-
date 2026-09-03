@@ -4,4 +4,4 @@ Mi cuaderno es acerca de la depresión, abordando el trastorno hasta su impacto 
 Utilicé diferentes herramientas, estas son:
 Cuestionario: 
 ---
-[[CUADERNO](https://notebook.google.com/notebook/0f5191bf-f152-4ea2-b456-59980cff7fac)]
+[[CUADERNO](https://notebook.google.com/notebook/2cb1c747-5f7c-488f-a6b4-d5e3842b8309)]
